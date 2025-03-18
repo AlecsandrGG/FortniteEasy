@@ -1,0 +1,2 @@
+# FortniteEasy
+Good Bro
